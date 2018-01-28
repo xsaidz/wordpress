@@ -1,0 +1,5 @@
+# wordpress
+KOLEKSI SCRIPT UNTUK SAYA BELAJAR WORDPRESS
+SEMOGA BERMANFAAT!
+
+https://xsaidz.com
